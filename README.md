@@ -13,7 +13,6 @@
 
 - 📫 How to reach me **pranay.kb1125@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/pranay-k-275970246/](https://www.linkedin.com/in/pranay-k-275970246/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
